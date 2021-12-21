@@ -1,2 +1,5 @@
-# merge-matters-cheats-free-gems-hacks
-Merge Matters cheats unlimited free gems Hacks iOS android 2022
+# Merge Matters cheats unlimited free gems Hacks iOS android 2022
+
+Merge Matters cheats unlimited free gems Hacks iOS android 2022 - In order to exchange orders, additional Merge Matters game cheat is provided, including copper ore, which can be changed into coins of different values after several rounds of consolidation. In addition, sometimes players will receive Amethyst blocks to make gemstones. It is important to keep working hard in your order. Keep trying to make them because you need all the wands you can get. Unlocking the new part of the island is also associated with the upgrade. Continue merging for XP until you unlock the new level. Then, if you have enough wands, you can find a new land. While it may be comfortable to put all consolidation activities in one place, it will soon run out of resources and space. The mine will eventually dry up and you will have no room to throw new things. That's why you need to work hard to unlock new parts of the island.
+
+<a href="https://windmod.icu/merge-matters/">go here</a>
